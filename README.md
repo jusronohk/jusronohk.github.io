@@ -13,7 +13,7 @@ template I'd change it up a little. Enjoy :)
 Demo images == you can use for pretty much whatever.
 
 AJ
-aj@lkn.io | @ajlkn | @jusronohk
+aj@lkn.io | @ajlkn | @ jusronohk.io
 
 
 Credits:
